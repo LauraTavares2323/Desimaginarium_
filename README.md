@@ -18,4 +18,4 @@ Procure ajuda:
 Qualquer dúvida, contate laurabtavares08@gmail.com e valentinacdep@gmail.com 
 
 Autores:
-Laura Brito Tavares e Valentina de Paula.
+Laura Brito Tavares, Maria Luiza aquino de costa e Valentina de Paula.
